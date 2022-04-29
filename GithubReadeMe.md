@@ -1,0 +1,1 @@
+I’ve always been a great problem solver, an independent introvert, and someone that's obsessed with creating things. Today, I’m currently a software engineer student with Udacity, and I get to work on developing skills that makes me a better programmer.
